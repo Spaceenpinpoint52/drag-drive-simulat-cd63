@@ -1,4 +1,4 @@
-#  
+#  Experience drag drive simulator like never before with drag drive simulator smart Script, the #1 Script. Includes aimbot and auto-collect for
 
 
 
